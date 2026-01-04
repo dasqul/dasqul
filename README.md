@@ -24,6 +24,6 @@ I’m still on my journey as a developer and always open to learning:
 
 ## 🤝 Let’s Connect
 I’m open to discussions, collaborations, and learning together.  
-If you want to talk, share ideas, or just say hi — **DMs are open.**
+If you want to talk, share ideas, or just say hi — discord: dasqul
 
 > *"Only the two of us can change the world."*
